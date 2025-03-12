@@ -2,7 +2,7 @@
 # Anatolie Jentimir
 
 Charlestown, MA  
-Email: ajentimi@bhcc.edu | Phone: (781) 607-0888  
+Email: ajentimi@bhcc.edu | Phone:  
 LinkedIn: [linkedin.com/in/anatolie-jentimir-719600175](https://www.linkedin.com/in/anatolie-jentimir-719600175)  
 GitHub: [github.com/jentimanatol](https://github.com/jentimanatol)  
 
