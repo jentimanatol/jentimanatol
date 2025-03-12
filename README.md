@@ -70,8 +70,8 @@ Motivated and detail-oriented Computer Science student at Bunker Hill Community 
 ---
 
 ## Languages  
-- English (Fluent)  
-- [Add any other languages you speak, if applicable]  
+- English (Fluent)
+- Romanian(Fluent)
 
 ---
 
