@@ -3,7 +3,7 @@
 
 Charlestown, MA  
 Email: ajentimi@bhcc.edu | Phone:  
-LinkedIn: [linkedin.com/in/anatolie-jentimir-719600175](https://www.linkedin.com/in/anatolie-jentimir-719600175)  
+LinkedIn: [linkedin.com/in/anatolie-jentimir-719600175](https://www.linkedin.com/in/jentimir/)  
 GitHub: [github.com/jentimanatol](https://github.com/jentimanatol)  
 
 ---
